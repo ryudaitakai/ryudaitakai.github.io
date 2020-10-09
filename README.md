@@ -1,0 +1,1 @@
+# ryudaitakai.github.io
